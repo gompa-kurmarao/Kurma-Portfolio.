@@ -1,1 +1,1 @@
-# Kurma-s-Portfolio.
+# Kurma Portfolio.
